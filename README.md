@@ -18,33 +18,29 @@
 ## Free online training Pro Members
     -
     -
-    -
 
 
 ## Free face-to-face training Pro Members
--
     -
     -
 
 
 ## Financial  Pro Members
--
     -
     -
 
 
 ## Others sponsors
-
--
     -
     -
 
 ---
 > Do you want to support WebStudyCorner ? Great idea. So before subscribing you logo and name here
 > please checkout our:
-    - Web site: https://www.webstudycorner.com/
-    - Youtube channel: https://www.youtube.com/channel/UCiH-f31neU8wsR_Cax1N73w
-    - Twitter: https://twitter.com/webstudycorner
-    - Or Contact us: join@webstudycorner.com
+
+- Web site: https://www.webstudycorner.com/
+- Youtube channel: https://www.youtube.com/channel/UCiH-f31neU8wsR_Cax1N73w
+- Twitter: https://twitter.com/webstudycorner
+- Or Contact us: join@webstudycorner.com
 
 
